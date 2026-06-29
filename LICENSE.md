@@ -1,4 +1,4 @@
-#  
+#  restaurant tycoon 3 stealth Scripts offers the most advanced restaurant tycoon 3 Script, with undetectable and anti-ban. Perfect for dominating any
 
 
 
